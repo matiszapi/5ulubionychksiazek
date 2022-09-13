@@ -15,7 +15,7 @@ W tym dokumencie przedstawię **pięć najlepszych ktore przeczytalem** ksiazek.
 # DIABELSKI PAKT
 Link: https://lubimyczytac.pl/szorstka-przyjazn-wspolpraca-niemiecko-radziecka-jako-przygotowanie-do-ii-wojny-swiatowej
 
-![DIABELSKI PAKT](https://assets.reedpopcdn.com/star-wars-toksyczny-fandom-head.jpg/BROK/resize/1920x1920>/format/jpg/quality/80/star-wars-toksyczny-fandom-head.jpg)
+![DIABELSKI PAKT](https://s.lubimyczytac.pl/upload/books/5027000/5027754/1001382-352x500.jpg)
 
 ## Krotki Opis Ksiazki
 >Gdy Niemcy najechały 1 września 1939 roku Polskę, ich potęga wojskowa była przytłaczająca. A ledwie dwadzieścia lat wcześniej Niemcy były na kolanach. Traktat wersalski drastycznie ograniczył ich niegdyś potężną armię, zakazując rozwoju techniki wojskowej. Gdy w roku 1933 do władzy doszedł Hitler, ustalenia te pozostawały w mocy. W roku 1939 jednak dysponował już 4,2 miliona żołnierzy i najbardziej zaawansowaną bronią na świecie. Jak do tego doszło?
